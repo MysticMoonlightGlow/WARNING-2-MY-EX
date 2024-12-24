@@ -1,4 +1,4 @@
-# WARNING-2-MY-EX
+># WARNING-2-MY-EX
 
 I'm gonna go ahead and expose you now bcs I can and I shouldve done it the first time.
 
@@ -13,5 +13,7 @@ Not only did you stalk me but you tried to get into contact WITH me through my f
 not only that your friend had somehow got into contact with me which they shouldn't have anyways and I don't care if you were sorry about it.
 
 I hope you fucking dni and stay away from my friends! 😭🙏
+
+Also your "friends" or the people you hang out with or be near are fucking disgusting and you still continue to be friends with them.
 
 🌼🌼🌼🌼🌼🌼🌼🌼🌼🌼🌼🌼🌼🌼🌼🌼🌺
