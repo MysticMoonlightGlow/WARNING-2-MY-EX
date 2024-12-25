@@ -17,3 +17,5 @@ I hope you fucking dni and stay away from my friends! 😭🙏
 Also your "friends" or the people you hang out with or be near are fucking disgusting and you still continue to be friends with them.
 
 🌼🌼🌼🌼🌼🌼🌼🌼🌼🌼🌼🌼🌼🌼🌼🌼🌺
+
+And if you are reading this and you continue to stalk me or even find a way to contact me(which I'm sure you WILL stop), I'll make a rentry or doc or something on you about your behavior! :]
